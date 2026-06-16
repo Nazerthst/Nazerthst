@@ -11,4 +11,4 @@ My F1 and kpop addiction took over my whole personality be warned
 
 ![](https://files.catbox.moe/v1t5og.jpg)
 
-[Strawpage](https://nazarethst.straw.page) ⊹  *[Interests](https://rentry.co/nazarethst-interests)* ⊹ [DNI/BYF](https://rentry.co/nazarethst-other)
+[Strawpage](https://nazarethst.straw.page) ⊹  *[Rentry](https://rentry.co/nazarethst)*
