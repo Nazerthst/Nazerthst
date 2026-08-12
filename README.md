@@ -1,7 +1,7 @@
 Links!!
 ![osc banner](https://files.catbox.moe/xkeuop.png)
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=fantawastaken&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=true&profanity=false&hide_remaster=false&bar_color=ff8800&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=fantawastaken&redirect=true)
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=fantawastaken&cover_image=true&theme=novatorem&show_offline=true&background_color=000000&interchange=false&profanity=false&hide_remaster=false&bar_color=fa7900&bar_color_cover=true)](https://spotify-github-profile.kittinanx.com/api/view?uid=fantawastaken&redirect=true)
  
 ![miku](https://files.catbox.moe/e46mfc.gif)  ☆ . ˚₊   **26/06** ![kitty](https://files.catbox.moe/ws3o9v.gif)
  op81 mv3 ☆ ***He/him*** . ˚₊ 
