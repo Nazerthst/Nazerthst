@@ -14,6 +14,6 @@
 
   <img src="https://files.catbox.moe/v1t5og.jpg">
 
-[Strawpage](https://nazarethst.straw.page) ⊹  *[Rentry](https://rentry.co/nazarethst)* ⊹  *[Atabook](https://nazarethst.atabook.org)*
+<a href="https://nazarethst.straw.page">Strawpage</a> ⊹  <a href="https://rentry.co/nazrskz">Rentry</a> ⊹  <a href="https://nazarethst.atabook.org">Atabook</a>
 
 </div>
