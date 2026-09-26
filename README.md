@@ -16,6 +16,5 @@
 
 <a href="https://nazarethst.straw.page">Strawpage</a> ⊹  <a href="https://rentry.co/nazrskz">Rentry</a> ⊹  <a href="https://nazarethst.atabook.org">Atabook</a>
 
-<iframe title="Azerbaijan Grand Prix Player" marginheight="0" marginwidth="0" src="https://embed.st/embed/admin/ppv-azerbaijan-grand-prix-race/1" scrolling="no" allowfullscreen="yes" allow="encrypted-media; picture-in-picture;" width="100%" height="100%" frameborder="0"></iframe>
 
 </div>
